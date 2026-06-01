@@ -36,9 +36,16 @@ She some kind of wonderful.
 
 She cooks meals from her garden.
 She practices magic in her garden, talking to plants, caressing them with her fingers.
+He enjoys watching her take care of her plants.
+They ride the public bus to places.
 
 Synopsis: Psychological healing of a burnt out citizen of the USA during the early 21st century.
-He is addicted to social media and spends too much time doomscrolling, looking for answers to questions he can barely put into words. He is looking for meaning in a chaotic worlds. He is looking for transcendence from his world of emptiness.
+He is addicted to social media and spends too much time doomscrolling, looking for answers to questions he can barely put into words. He is looking for meaning in a chaotic world. He is looking for transcendence from his world of emptiness. He has a theory that humanity is infected with a contagious mental illness that is the result of social media addiction. We used to grow a lot more of our own food but now we buy it from the grocery store and now even online so we don't have to go through the toil and sweat of tending our own gardens. When we stop growing our own gardens we lost our connection to the natural world and then the mental illness began to creep in.
+
+Feels Just Like It Should - Jamiroquai
+Virtual Insanity - Jamiroquai
+
+
 
 
 
