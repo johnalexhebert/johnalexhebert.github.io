@@ -8,6 +8,7 @@ She works at a botanica/bookstore and reads tarot cards as a side gig.
 She smokes pot from a pot shop.
 She wants to grow her own pot but it's illegal in this state.
 She loves to sing but she can't carry a tune.
+She has great-grandchildren and she chats with them online and on video calls.
 
 Ma Harper as a character. She believe in second chances and loving people. She is 97.
 
@@ -24,8 +25,24 @@ Wetiko - a contagious, psychogenic illness caused by modern culture.
 - the truth is that wetiko has also claimed rich billionaires who are destroying the climate and cultures because of their greed.
 - we are living in a cyberpunk dystopia with the inevitable goal of self-destruction
 
+Extraordinary Popular Delusions and the Madness of Crowds - Charles Mackay
+"Dissatisfaction with his lot seems to be the characteristic of man in all ages and climates."
+https://www.gutenberg.org/cache/epub/24518/pg24518-images.html#alchymists
+
+Outbreaks of illnesses with no known causes in many small towns among groups of people.
+
+https://en.wikipedia.org/wiki/Social_contagion
 She some kind of wonderful.
 
 She cooks meals from her garden.
 She practices magic in her garden, talking to plants, caressing them with her fingers.
+
+Synopsis: Psychological healing of a burnt out citizen of the USA during the early 21st century.
+He is addicted to social media and spends too much time doomscrolling, looking for answers to questions he can barely put into words. He is looking for meaning in a chaotic worlds. He is looking for transcendence from his world of emptiness.
+
+
+
+
+
+
 
