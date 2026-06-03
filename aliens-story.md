@@ -4,7 +4,7 @@ Aliens are trying to tell us how to upgrade our consciousnesses.
 
 Consciousness that have evolved to a certain point (language) are able to hear the message.
 
-Brain are antennas.
+Brains are antennas.
 
 A sufficiently advanced alien species have figured out how to communicate with extraterrestrial
 sentient species instaneously across any distance using quantum entanglement.
@@ -20,5 +20,6 @@ We can contact aliens using psychedelics.
 We can also contact aliens/spirits/divine beings through meditation.
 
 Angels and demons are aliens.
+- Jacque Vallee is right.
 
 
