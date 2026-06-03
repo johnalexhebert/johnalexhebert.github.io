@@ -5,6 +5,7 @@ Aliens are trying to tell us how to upgrade our consciousnesses.
 Consciousness that have evolved to a certain point (language) are able to hear the message.
 
 Brains are antennas.
+https://detnyeunivers.substack.com/p/the-brain-is-an-antenna
 
 A sufficiently advanced alien species have figured out how to communicate with extraterrestrial
 sentient species instaneously across any distance using quantum entanglement.
