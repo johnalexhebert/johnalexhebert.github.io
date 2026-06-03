@@ -12,3 +12,13 @@ sentient species instaneously across any distance using quantum entanglement.
 Non-local consciousness
 Human brain as an attenuator.
 
+We can contact aliens using psychedelics.
+- because psychedelics (mind manifesting) allow us to become aware of what is happening in our brains already
+- Some medicines and chemicals work better than others (psilocybin and DMT)
+- DMT entities are real and exist outside of our bodies.
+
+We can also contact aliens/spirits/divine beings through meditation.
+
+Angels and demons are aliens.
+
+
