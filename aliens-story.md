@@ -23,4 +23,7 @@ We can also contact aliens/spirits/divine beings through meditation.
 Angels and demons are aliens.
 - Jacque Vallee is right.
 
+How will disclosure change us?
+
+
 
