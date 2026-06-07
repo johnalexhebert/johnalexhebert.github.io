@@ -45,6 +45,8 @@ He is addicted to social media and spends too much time doomscrolling, looking f
 Feels Just Like It Should - Jamiroquai
 Virtual Insanity - Jamiroquai
 
+Young tech billionaire visiting the Ganges in a full body hazmat suit with breathing apparatus in order not to get sick from the filthy river.
+
 
 
 
